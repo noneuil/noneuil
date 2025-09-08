@@ -3,7 +3,7 @@
 ### Je suis née le 10 septembre 2008 à Châteaubriant et j'ai grandi dans la petite campagne de Challain-la-Potherie
 
 ## Ce que j'aime 💕
-###
+
 - Musique (je me suis mise au piano seule pendant 2 ans)
 - Audio Visuel (montage vidéo..)
 - Les animaux
