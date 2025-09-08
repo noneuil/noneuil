@@ -1,16 +1,20 @@
-## Hi there 👋
+# Salut c'est Noémieee primee 👋
 
-<!--
-**noneuil/noneuil** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### Je suis née le 10 septembre 2008 à Châteaubriant et j'ai grandi dans la petite campagne de Challain-la-Potherie
 
-Here are some ideas to get you started:
+## Ce que j'aime 💕
+###
+- Musique (je me suis mise au piano seule pendant 2 ans)
+- Audio Visuel (montage vidéo..)
+- Les animaux
+- Conduire (le permis dans 1 mois j'espère) 🚗
+- Le sport 🏋️
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## Projet d'orientation + spés actuelles
+### NSI, Mathématiques, +Expert ➕➖➗🟰
+#### J'aimerais bien travailler dans le milieu de l'ostéopathie, je ne sais pas encore vers quelle école/université m'orienter pour l'instant 🦴💪
+
+
+
+## Me contacter ✉️
+### Email : noemiegbert49@mail.com
